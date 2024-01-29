@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @PHDiamond
-- 👀 I’m interested in ...  any and all of the arts, especially dance! also longboarding,
+- 👀 I’m interested in ...  any and all of the arts, especially dance! also anime, longboarding,
 - skateboarding, rollerskating, roller derby, music, bass guitar, a bunch of other instruments,
 - space, philosophy, and a lot of other stuff!
-- 🌱 I’m currently learning ... anything and everything!
+- 🌱 I’m currently learning ... anything and everything that I can!
 - 💞️ I’m looking to collaborate on ... nothing in particular atm
 - 📫 How to reach me ... I'm busy right now and need time to focus. tysm for understanding!
 - 😄 Pronouns: ... any pronouns except for he/him
