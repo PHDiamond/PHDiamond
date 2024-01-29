@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on ... nothing in particular atm
 - 📫 How to reach me ... I'm busy right now and need time to focus. tysm for understanding!
 - 😄 Pronouns: ... any pronouns except for he/him
-- ⚡ Fun fact: ... I'm working on starting my own dance studio rn!
+- ⚡ Fun fact: ... I'm horrible at coming up with fun facts about myself :D
 - 🎵 My favorite band is... Pierce the Veil atm, but I like all music... country is my least
 - favorite genre (I don't HATE it, it's just certainly not my favorite genre) and indie,
 - alternative, rock, and metal are my favorite genres (disco is an honorable mention tho)
